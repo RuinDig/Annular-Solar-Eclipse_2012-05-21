@@ -18,3 +18,5 @@
 ![Annular-Solar-Eclipse_2012-05-21_08](https://user-images.githubusercontent.com/20723919/200717859-d3edf94f-e71c-4dcd-b8ca-86c2da7db781.JPG)
 
 ![Annular-Solar-Eclipse_2012-05-21_09](https://user-images.githubusercontent.com/20723919/200717863-4372602a-d7e0-4531-9541-8aaa7cf10743.JPG)
+
+![Annular-Solar-Eclipse_2012-05-21_10](https://user-images.githubusercontent.com/20723919/200718891-9aae6069-c9e6-446e-85e8-43feb97d98b3.JPG)
